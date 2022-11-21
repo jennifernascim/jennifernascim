@@ -5,5 +5,7 @@
 - 🌱 Estudando no 1 Ano do Ensino Medio
 - 💞️ Instagram: @jennifer_xsouto.
 - 📫 Facebook: Jennifer Leticia 
+
 A procura de novas amizades
- De Maringá....
+
+De Maringá....
